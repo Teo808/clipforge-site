@@ -1,11 +1,4 @@
 # clipforge-siteplease do
-Thought for 22s
-
-Absolutely. Paste this in so everything matches Clipforge cleanly.
-
-Use Clipforge everywhere and remove Tayoytposter entirely.
-
-Home page
 
 Clipforge
 
